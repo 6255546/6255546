@@ -2,7 +2,7 @@
 - 👀 I’m interested in "ur mom"
 - 🌱 I’m currently learning "about ur mom"
 - 💞️ I’m looking to collaborate on "ur mom"
-- 📫 How to reach me "911"
+- 📫 How to reach me "ur mom's number probably"
 - 😄 Pronouns: "In/Urmom"
 - ⚡ Fun fact: ur mom
 
