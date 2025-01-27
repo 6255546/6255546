@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on "ur mom"
 - 📫 How to reach me "ur mom's number probably"
 - 😄 Pronouns: "In/Urmom"
-- ⚡ Fun fact: ur mom
+- ⚡ Fun fact: I'm with ur mom
 
 <!---
 6255546/6255546 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
